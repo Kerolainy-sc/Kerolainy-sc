@@ -4,7 +4,6 @@
 # <sub>  </sub>  <sub>  </sub>
 
 <br>
-𝓈ℴ𝒸𝒾𝒶𝓁𝓈
 <p align="left">
   <a href="https://instagram.com/kero404.x" target="_blank">
     <img src="https://img.shields.io/badge/Instagram-f5c2e7?style=for-the-badge&logo=instagram&logoColor=11111b" height="38" />
