@@ -1,8 +1,8 @@
 
 <img align="right" width="400" src="https://pin.it/yQv5YAc2P" />
 </p>
-# <sub>  </sub>  <sub>  </sub>
-
+# <sub> ˑ 𓈒 𐔌 </sub> 𝙝𝙞𝙞 <sub> ꒱ ۫ </sub>
+ 
 <br>
 <p align="left">
   <a href="https://instagram.com/kero404.x" target="_blank">
