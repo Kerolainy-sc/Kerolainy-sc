@@ -2,7 +2,7 @@
 
 <p align="center">
  <img align="right" width="400" 
-  <img src="https://i.pinimg.com/originals/6d/b6/04/6db604c21aa4a44d501720474840af76.gif" alt="GIF do Pinterest" width="20%">
+  <img src="https://i.pinimg.com/originals/6d/b6/04/6db604c21aa4a44d501720474840af76.gif" alt="GIF do Pinterest" width="15%">
 </p>
 
  
